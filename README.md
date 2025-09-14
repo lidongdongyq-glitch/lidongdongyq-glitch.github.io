@@ -1,3 +1,3 @@
-# Suger0330.github.io
+# lidongdongyq-glitch.github.io
 
-Xi-Ming Liu's Homepage/刘席铭的个人主页
+Dongdong Li's Homepage/李冬冬的个人主页
